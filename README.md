@@ -6,7 +6,7 @@
 
 91大事件永久地址（需科学⬆️网工具）https://91dsj.fun
 
-91大事件官方QQ群:https://91dsj36.com?path=/qun.htmll
+91大事件官方QQ群:https://91dsj37.com?path=/qun.htmll
 
 91大事件TG官方群:https://t.me/mengliaogc
 
