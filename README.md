@@ -1,12 +1,12 @@
-91大事件最新地址👋（最新更新时间2025-05-28）
+91大事件最新地址👋（最新更新时间2025-06-03）
 
-91大事件最新官网：https://91dsj38.com
+91大事件最新官网：https://91dsj39.com
 
-91大事件备用线路1 https://91dsj37.com
+91大事件备用线路1 https://91dsj38.com
 
 91大事件永久地址（需科学⬆️网工具）https://91dsj.fun
 
-91大事件官方QQ群:https://91dsj38.com?path=/qun.htmll
+91大事件官方QQ群:https://91dsj39.com?path=/qun.htmll
 
 91大事件TG官方群:https://t.me/mengliaogc
 
